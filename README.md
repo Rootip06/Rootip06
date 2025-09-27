@@ -1,4 +1,4 @@
-## Hi there 👋
+## come on my profile and get some projects
 
 <!--
 **Rootip06/Rootip06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
